@@ -1,0 +1,5 @@
+2 pints heavy cream, chilled
+⅓ cup unsweetened cocoa powder
+¾ cup chocolate syrup
+2 (14 ounce) cans sweetened condensed milk
+¼ teaspoon ground cinnamon

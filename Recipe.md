@@ -1,0 +1,7 @@
+In a large bowl, beat cream with cocoa until stiff peaks form.
+
+ Stir in chocolate syrup, sweetened condensed milk and cinnamon. 
+ 
+ Pour into a shallow dish or plastic container.
+ 
+ Cover and freeze 8 hours or until firm.
